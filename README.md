@@ -8,3 +8,4 @@ INT/W2I AND C+H FREELY!! as long not a weirdo
 Im in many fandoms but Phighting and Sonic are my top !! my fav char is coil phighting? ok! 
 :3 !!
 the inphernal in pic is my oc btw ok..?
+<img width="1000" height="967" alt="Başlıksız124_20260102010754" src="https://github.com/user-attachments/assets/6610340d-ef53-41ed-a4d5-1af7649be89c" />
