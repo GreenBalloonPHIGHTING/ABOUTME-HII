@@ -7,4 +7,4 @@ IM USUALLYIN PHIGHTING OR SONIC AREA !!!!
 INT/W2I AND C+H FREELY!! as long not a weirdo
 Im in many fandoms but Phighting and Sonic are my top !! my fav char is coil phighting? ok! 
 :3 !!
-the inphernal in pic is my oc btw ok
+the inphernal in pic is my oc btw ok..?
