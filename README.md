@@ -1,5 +1,5 @@
 # ABOUTME-HII
-<img width="1000" height="997" alt="Başlıksız168_20260215202909" src="https://github.com/user-attachments/assets/e04df555-5ccc-4032-9548-87f17fe2a548" />
+<img width="1000" height="997" alt="Başlıksız52_20251112221320" src="https://github.com/user-attachments/assets/05d79264-e349-4be1-b925-3e3f535cbdc4" />
 
 
 Hello!!1!!!!! Im Kaelly but u can call me nicknames too !! ^_^
